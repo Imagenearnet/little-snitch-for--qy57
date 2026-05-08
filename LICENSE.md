@@ -1,4 +1,4 @@
-
+professional Little Snitch for macOS Validator | auto-fill + password-sharing is the best Little Snitch for macOS validator, featuring auto-fill and password-sharing. Secure,
 
 
 
